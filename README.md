@@ -1,4 +1,4 @@
-👋 Hi, I’m @oromiaGodanna, I’m currently learning AI and Cognitive Science at Vrije Universiteit Amsterdam.
+👋 Hi, I’m @oromiaGodanna, I’m currently studying AI and Cognitive Science at Vrije Universiteit Amsterdam.
 
 
 <!---
